@@ -1,2 +1,2 @@
-# sapvuottocloreal
+# Sáp vuốt tóc Loreal
 mua bán wax sáp vuốt tóc Loreal, keo vuốt tóc, gel vuốt tóc trong hộp lớn chính hãng giá tốt, giá rẻ, khuyến mãi tại handmade4v  http://handmade4v.com/san-pham/wax-loreal-sap-vuot-toc-loreal-tao-nep-toc-cuc-chat/  Wax Sáp Vuốt Tóc L’oreal là những hạt sáp rất mịn nên vuốt rất đều tóc không bị vón cục, không bị rít, không để lại những hạt trắng trên tóc như sáp NewForce, quên không đóng nắp cũng không bị hỏng sáp như NewForce.
